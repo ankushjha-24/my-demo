@@ -1,5 +1,2 @@
 # my-demo
-vhjvjgcghcckhvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
-jhccccccc
-jhccccccccccccccccccccccccccccccc
-hlo guys
+Hy i am recently join the github.
